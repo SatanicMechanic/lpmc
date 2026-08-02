@@ -1,5 +1,5 @@
 ---
-title: August Newsletter
+title: August Newsletter - How You Can Support This Portland Libertarian Candidate
 date: 2026-08-01
 ---
 
